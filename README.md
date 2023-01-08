@@ -1,8 +1,8 @@
 #  Aviaaz
 
-**`Щeb𝕕esigภer(Creator/UI UX designer)`**
+**` (Creator/UI UX designer)`**
 
-I'm a web designer with a knack to tweak up things as per it's utility and what's in the demand. I code and create things from scratch and sometimes help create wonderful stories and vibrant play of code.
+I'm a web designer with a knack to tweak up things as per it's utility and what's in the demand. I create things from scratch and sometimes help create wonderful stories and vibrant play of code.
 
    <p align="left">
       <a href="https://www.linkedin.com/in/advita-raj-0521b0226/">
